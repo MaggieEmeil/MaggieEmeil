@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **git,github,linux,html.css**
 
-- 📫 How to reach me **mangoooo2013@gmail.com**
+- 📫 How to reach me **maggieemeil@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
